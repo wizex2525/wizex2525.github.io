@@ -1,0 +1,1 @@
+# wizex2525.github.io
